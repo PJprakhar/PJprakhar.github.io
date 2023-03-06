@@ -1,6 +1,6 @@
 # Namaste :pray: | Hello :wave: | 你好 :wave:
-# Prakhar Jain (PJ)
-![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=DOKaD7-XlrwAX-ThynJ&_nc_ht=scontent-tpe1-1.xx&oh=00_AfD5XaCs5rALwtw0903Ngc9P7DEcMEd5qtNJhlkaONOuoQ&oe=640A32DD)
+
+![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=hMfdMAwd6PwAX8spv7-&_nc_ht=scontent-tpe1-1.xx&oh=00_AfBBSVzijzDvMSDHXjibfp95Nb146U-zzj4xrwekHhKakQ&oe=6404441D)
 ## About Me:
 I was born in Saharanpur, Uttar Pradesh (India) on July 1, 1995. My father is a businessman based 
 out of Saharanpur and as per Indian culture my mother is a home maker and takes care of all our family affairs. I 
@@ -57,6 +57,10 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 - Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
 
 ![pj](https://scontent.ftpe6-1.fna.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=nmvvPsDVaI0AX-otMO3&_nc_ht=scontent.ftpe6-1.fna&oh=00_AfC0OdESb_i3nTVysUIotimhsYljBTwSxdn9dNwYiA8aVA&oe=64065ABF)
+
+
+# Scan & connect with me :wink: :iphone:
+![socials](https://user-images.githubusercontent.com/125838954/222724701-f9f8f6e6-1121-4ca7-82b3-97ce50be534e.png)
 
 
 # Scan & connect with me :wink: :iphone:
