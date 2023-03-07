@@ -1,7 +1,7 @@
 
 # Namaste 🙏 | Hello 👋 | 你好 👋
 
-![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=9_gPJh9HZLAAX_uhhpn&_nc_ht=scontent-tpe1-1.xx&oh=00_AfAA3OptV6_ewbIasGk5lx0uAPcFw2vjtsM_TJlk2V0XJw&oe=640C2D1D)
+![Prakhar Jain](305761559_5612301095493525_5654274801915604648_n](https://user-images.githubusercontent.com/125838954/223475953-9ff28fb5-5d68-4b63-afa5-b555ac0760fa.jpg)
 ## About Me:
 I was born in Saharanpur, Uttar Pradesh (India) on July 1, 1995. My father is a businessman based 
 out of Saharanpur and as per Indian culture my mother is a home maker and takes care of all our family affairs. I 
