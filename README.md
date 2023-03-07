@@ -8,8 +8,7 @@ out of Saharanpur and as per Indian culture my mother is a home maker and takes 
 have one elder brother who is working as a Sr. Business Analyst at Nike, Taiwan. 
 
 I completed my senior secondary school in 2014 and started my Bachelor of Technology from Raj Kumar Goel 
-Institute of Technology, Ghaziabad, majoring in Computer Science and Engineering in 2014 and got graduated in 
-2018. 
+Institute of Technology, Ghaziabad, majoring in Computer Science and Engineering in 2014 and got graduated in 2018.
 Along with academics, I took part in co-curricular and extra-curricular activities. I got inclined towards music in 
 early 2011 and hence I took some guitar coaching and been playing it thereafter. I did play a major role in shaping up 
 the Musical Rock Band of my college and emerged out as a performer during my graduation and won several inter-college musical events and some on National Level as well.
