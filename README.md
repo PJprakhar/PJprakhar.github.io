@@ -1,5 +1,5 @@
 
-# Namaste 🙏 | Hello 👋 | 你好 👋
+# Prakhar Jain
 
 ![Prakhar Jain](https://user-images.githubusercontent.com/125838954/223475953-9ff28fb5-5d68-4b63-afa5-b555ac0760fa.jpg)
 ## About Me:
