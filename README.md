@@ -1,7 +1,7 @@
 
 # Namaste 🙏 | Hello 👋 | 你好 👋
 
-![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=hMfdMAwd6PwAX8spv7-&_nc_ht=scontent-tpe1-1.xx&oh=00_AfBBSVzijzDvMSDHXjibfp95Nb146U-zzj4xrwekHhKakQ&oe=6404441D)
+![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=9_gPJh9HZLAAX_uhhpn&_nc_ht=scontent-tpe1-1.xx&oh=00_AfAA3OptV6_ewbIasGk5lx0uAPcFw2vjtsM_TJlk2V0XJw&oe=640C2D1D)
 ## About Me:
 I was born in Saharanpur, Uttar Pradesh (India) on July 1, 1995. My father is a businessman based 
 out of Saharanpur and as per Indian culture my mother is a home maker and takes care of all our family affairs. I 
@@ -57,7 +57,7 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 - **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
 - Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: 🎶🎙️🎸
 
-![pj](https://scontent.ftpe6-1.fna.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=nmvvPsDVaI0AX-otMO3&_nc_ht=scontent.ftpe6-1.fna&oh=00_AfC0OdESb_i3nTVysUIotimhsYljBTwSxdn9dNwYiA8aVA&oe=64065ABF)
+![pj](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=L64xEwFOKv4AX8DjBlP&_nc_ht=scontent-tpe1-1.xx&oh=00_AfC5HhE_WylSMX1CIsw0v2scpVOAYTJHVWYlYWY9xKY2PA&oe=640C497F)
 
 
 # Scan & connect with me 😉📱
