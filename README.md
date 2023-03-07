@@ -1,7 +1,7 @@
 
 # Namaste 🙏 | Hello 👋 | 你好 👋
 
-![Prakhar Jain](305761559_5612301095493525_5654274801915604648_n](https://user-images.githubusercontent.com/125838954/223475953-9ff28fb5-5d68-4b63-afa5-b555ac0760fa.jpg)
+![Prakhar Jain](https://user-images.githubusercontent.com/125838954/223475953-9ff28fb5-5d68-4b63-afa5-b555ac0760fa.jpg)
 ## About Me:
 I was born in Saharanpur, Uttar Pradesh (India) on July 1, 1995. My father is a businessman based 
 out of Saharanpur and as per Indian culture my mother is a home maker and takes care of all our family affairs. I 
