@@ -1,4 +1,5 @@
-# Namaste :pray: | Hello :wave: | 你好 :wave:
+
+# Namaste 🙏 | Hello 👋 | 你好 👋
 
 ![Prakhar Jain](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/305761559_5612301095493525_5654274801915604648_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=hMfdMAwd6PwAX8spv7-&_nc_ht=scontent-tpe1-1.xx&oh=00_AfBBSVzijzDvMSDHXjibfp95Nb146U-zzj4xrwekHhKakQ&oe=6404441D)
 ## About Me:
@@ -13,7 +14,7 @@ Along with academics, I took part in co-curricular and extra-curricular activiti
 early 2011 and hence I took some guitar coaching and been playing it thereafter. I did play a major role in shaping up 
 the Musical Rock Band of my college and emerged out as a performer during my graduation and won several inter-college musical events and some on National Level as well.
 
-## Education :open_book: :
+## Education 📖 :
 #### [Tunghai University](https://eng.thu.edu.tw/), Taichung City, Xitun District, Taiwan - 2023-2024
 **Global Masters of Business Administration** - Interational Business
 
@@ -21,7 +22,7 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 **Bachelor of Technology** - Computer Science Engineering
 
 
-## Professional Life :briefcase: :
+## Professional Life 💼 :
 
 ### [LinkedIn](https://www.linkedin.com/in/prakharpj/) Profile
 
@@ -47,21 +48,17 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 
 ## Side Hustle:
 
-### Indie Artist :guitar: 
+### Indie Artist 🎸 
 - **I am an an Indian music composer, singer/songwriter.**
 - Started my journey by breaking a xylophone in childhood to learning Guitar and Ukulele, enhanced my craft in the guidance of my maestro, Amit Kaushik. 
 - I was an integral part of rock bands during my bachelors degree and started writing and composing songs thereafter. 
 - I am still working on my original songs and will be rolling them out soon.
 - **I am a [Spotify](https://open.spotify.com/artist/1n5vU37Ug1TqzzjMQDmH4k) verified artist.**
 - **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
-- Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: :notes: :microphone: :guitar: 
+- Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: 🎶🎙️🎸
 
 ![pj](https://scontent.ftpe6-1.fna.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=nmvvPsDVaI0AX-otMO3&_nc_ht=scontent.ftpe6-1.fna&oh=00_AfC0OdESb_i3nTVysUIotimhsYljBTwSxdn9dNwYiA8aVA&oe=64065ABF)
 
 
-# Scan & connect with me :wink: :iphone:
-![socials](https://user-images.githubusercontent.com/125838954/222724701-f9f8f6e6-1121-4ca7-82b3-97ce50be534e.png)
-
-
-# Scan & connect with me :wink: :iphone:
+# Scan & connect with me 😉📱
 ![socials](https://user-images.githubusercontent.com/125838954/222724701-f9f8f6e6-1121-4ca7-82b3-97ce50be534e.png)
