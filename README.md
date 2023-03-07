@@ -57,7 +57,7 @@ the Musical Rock Band of my college and emerged out as a performer during my gra
 - **My music is available on 21 different audio platforms like [Apple Music](https://music.apple.com/us/artist/prakhar-jain/1602616586), [Amazon Music](https://music.amazon.com/artists/B09N3GCXYQ/prakhar-jain?marketplaceId=ATVPDKIKX0DER&musicTerritory=US&ref=dm_sh_pDOwznGW2F7uCsXYkv6YEpdTq), [Instagram](https://www.instagram.com/) and many others.**
 - Click **[here](https://linktr.ee/prakharpj)** to tune to my music on your favourite store :sunglasses: 🎶🎙️🎸
 
-![pj](https://scontent-tpe1-1.xx.fbcdn.net/v/t39.30808-6/329331208_724077655755874_1755510983700534003_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=L64xEwFOKv4AX8DjBlP&_nc_ht=scontent-tpe1-1.xx&oh=00_AfC5HhE_WylSMX1CIsw0v2scpVOAYTJHVWYlYWY9xKY2PA&oe=640C497F)
+![pj](https://user-images.githubusercontent.com/125838954/223476654-c7a64d65-7da1-4168-8ffd-687d700a5120.jpg)
 
 
 # Scan & connect with me 😉📱
